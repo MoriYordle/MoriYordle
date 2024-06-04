@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mori
+- 👀 I’m interested in Linux and FOSS
+- 🌱 I’m currently learning design by myself
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I collect Social networks, I have like 15 social networks open just because owo
